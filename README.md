@@ -31,6 +31,6 @@ MIT
 
 This is the free version. Get the full version with more features:
 
-[Buy on Gumroad - 4](https://haualand.gumroad.com/l/email-automation-pro)
+[Buy on Gumroad - 4](https://geir30.gumroad.com/l/email-automation-pro)
 
 ---
